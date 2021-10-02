@@ -26,4 +26,4 @@ In a standing mixer fitted with the paddle attachment, or with a hand-held elect
 
 Reduce the speed of the mixer to low. Add the vanilla, raise the speed to high and mix briefly until fluffy (scrape down the bowl occasionally). Store in the refrigerator until somewhat stiff, before using. May be stored in the refrigerator for 3 days.
 
-fard lel, 
+fard lel
